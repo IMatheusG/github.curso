@@ -1,0 +1,2 @@
+Bão dia
+Boa tarde
